@@ -1,1 +1,5 @@
-# wuhuahxsn.github.io
+欢迎来到真&正的网站，不好意思，网站目前因服务器问题暂停使用，GitHub备用线路正在配置中...敬请期待
+
+邮箱 email：a@zhengxian.top（暂停使用） 2490878693@qq.com（正常使用）
+
+© 庄正贤
